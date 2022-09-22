@@ -1,2 +1,2 @@
 # Resume
-Resume
+An enthusiastic Data Analyst aiming to work for an organization, providing an opportunity to improve my technical, analytical skills, and knowledge to grow along with the organizational objective. Passionate Computer Engineer with motivated and leadership qualities. Eager to learn new technologies and methodologies. Ability to solve complex problems and transform raw data into structured data. Capability to work as an individual as well as in a team. Hardworking professional with 2 years of experience and a proven knowledge in the field.
